@@ -1,2 +1,0 @@
-# Poorty
-My Worrk
